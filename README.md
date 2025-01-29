@@ -1,2 +1,2 @@
 # my-supplement-blog-links
-Check out my latest fitness tips and guides on [My Website](https://primehealthsupplements.com/)
+Check out my latest supplementation tips and recommendations on [My Website](https://primehealthsupplements.com/)
